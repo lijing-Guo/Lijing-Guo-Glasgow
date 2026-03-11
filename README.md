@@ -1,1 +1,1 @@
-# Lijing-Guo-Glasgow
+# Lijing-Guo
